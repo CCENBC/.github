@@ -10,3 +10,11 @@
 🍿 Fun facts - what does your team eat for breakfast?
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
+
+
+start the main Bitcoin 27/04/2010
+start Exchange networking Bitcoin wallet project in 2011/04/06
+25 % donate for unisef 
+51% security team BTC and block chain.
+4% for family team BTC 
+20% to mylocation Google classroom and send to my security 🔐 my wallet and never unsubscribe me.
